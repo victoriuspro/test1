@@ -1,0 +1,1 @@
+co mam pisac
